@@ -10,6 +10,6 @@
 
 # Credits
 
-__DarkShadow(Shadoow159258#4769)__
+[DarkShadow(Shadoow159258#4769](https://discord.gg/Ud8ZwnJWQr)
 
 [**Youtube Channel**](https://www.youtube.com/channel/UC4zkPH1ticImcO4-fjM2pZA)
